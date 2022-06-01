@@ -1,7 +1,7 @@
 Im Dirs Ferg, an strange IT Students (said my mate coz i just life at night and sleep when the sun is up LMFAO)
 im perfect at Mobile Apps using Flutter and Web Apps using Codeigniter (F with version, i can do any version)
 
-Thats it i guess, any inq? its not polite at all if u wanna hmu or take me for caramel latte break 😁
+Thats it i guess, any inq? it polite at all if u wanna hmu or take me for caramel latte break 😁
 
 Im indonesian product, South Celebes exactly
 
